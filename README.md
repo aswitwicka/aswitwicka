@@ -1,4 +1,4 @@
-🧬 🌱 🐝 🌍
+🧬🌱🐝🦋🪲🪰🌍
 
 Contact me: <br>aw43@sanger.ac.uk <br>a.witwicka@qmul.ac.uk<br>
 <br>
