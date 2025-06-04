@@ -1,6 +1,6 @@
 🧬🌱🐝🦋🪲🪰🌍
 
-Contact me: <br>aw43@sanger.ac.uk <br>a.witwicka@qmul.ac.uk<br>
+Contact me: <br>aw43@sanger.ac.uk<br>
 <br>
 → <a href="https://www.sanger.ac.uk/collaboration/bioscan" target="_blank">BIOSCAN Project</a> <br>
 → <a href="https://pollinator.health" target="_blank">Healthy Pollinators Project</a> <br>
